@@ -1,4 +1,6 @@
-### Hi there 👋
+### yooooooooooooooo so this is github
+dun mind me I'm just some rando trying to get better at AI stuff, also biomedical intelligence sounds cool XD
+ok bye
 
 <!--
 **stephentwk/stephentwk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
