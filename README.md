@@ -1,5 +1,5 @@
-### yooooooooooooooo so this is github
-dun mind me I'm just some rando trying to get better at AI stuff, also biomedical intelligence sounds cool XD
+### Here represents Stephen's Github page
+I am just some rando trying to get better at AI stuff, also biomedical intelligence and music in AI sounds really cool.
 ok bye
 
 <!--
